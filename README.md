@@ -1,2 +1,1 @@
-# Schulenburg-CAPITAL
-# for learning purpose 
+# SCHULENBURG CAPITAL
